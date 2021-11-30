@@ -1,1 +1,1 @@
-![](Capture.JPG)
+![](Image.png)
